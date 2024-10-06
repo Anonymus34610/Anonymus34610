@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Anonymus34610
+- 👀 I’m interested in  learn about Unethical hacking,banks, attack system of banks of whatever  size 
+- 🌱 I’m currently learning  about ia a bit
